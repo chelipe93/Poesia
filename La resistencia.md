@@ -1,1 +1,2 @@
-La resistencia es una lagrima que no se desliza por tu mejilla, sino dentro de tu pecho, una palabra que se ahoga, un golpe que no cruza el viento, la resistencia no es sólo el peso de afuera que se sostiene, sino también el peso de adentro que no se desborda.
+La resistencia es una lagrima que se evapora antes de salir, una palabra que se ahoga, un golpe que no cruza el viento 
+La resistencia no es sólo el peso exterior que se sostiene, sino también el peso de interior que no se desborda.
